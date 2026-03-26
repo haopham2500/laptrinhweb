@@ -1,4 +1,2 @@
 
-Thanh Khiết
-
-Đặng Văn
+Hoang Hao
