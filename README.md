@@ -1,3 +1,1 @@
-
-Nội dung của TEST CONFLICT# laptrinhweb
-nội dung của Master# laptrinhweb
+Nội dung tài khoản thứ 2 
