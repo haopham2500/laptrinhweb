@@ -1,1 +1,1 @@
-Nội dung tài khoản thứ 2 
+nội dung của tài khoản chính
