@@ -1,6 +1,2 @@
-
-chính
-
-phụ
-
+Khiết
 
