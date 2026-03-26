@@ -1,6 +1,1 @@
-
-chính
-
-phụ
-
-
+Thanh
